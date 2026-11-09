@@ -2,4 +2,4 @@
 
 > "*Design is not just what it looks like and feels like. Design is how it works*" **— Steve Jobs**
 
-**A Polish backend dev who lives in the UK.**
+**Polish dude who does stuff. I wanted to sound all sophistcated but oh well. Lives in the UK so there's that i guess. :|**
