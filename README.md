@@ -4,6 +4,8 @@
 
 #  
 
-**Polish dude who does stuff. I wanted to sound all sophistcated but oh well. Lives in the UK so there's that i guess. :|**
+**🇵🇱 Polish dude who does stuff.**
+
+**Do I know what I'm doing? Hell no. Am I gonna continue anyway? Hell yea.**
 
 **(there's a quote up there as well for some reason absolutley no idea where i found it)**
